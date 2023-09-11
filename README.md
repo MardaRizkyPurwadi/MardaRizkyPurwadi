@@ -9,7 +9,7 @@ Before you know further about me, first thing first let me introduce my self🤗
 
 - 🏡 Currently stayed in **Sleman, Special Region of Yogyakarta, Indonesia**
 - 🏃 Sport enthusiat
-- 📖 like to learning a new thing
+- 📖 Like to learning a new thing
 - 📫 How to reach me **mardarizky1804@mail.ugm.ac.id**
 
 
