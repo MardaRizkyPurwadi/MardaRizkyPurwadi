@@ -1,10 +1,11 @@
-### HOLAAA 👋👋
-
 <div align="center" width="500">
-<img src="https://im3.ezgif.com/tmp/ezgif-3-0fb76b27b3.gif" width="600">
+<img src="https://im3.ezgif.com/tmp/ezgif-3-31fb0475d0.gif" width="600">
 </div>
 
+### HOLAAA 👋👋
+
 Before you know further about me, first thing first let me introduce my self🤗🤗. My name is Marda Rizky Purwadi, you can call me marda. I'm currently studying as a second-year undergraduate student at Gadjah Mada University for geophysic major. My hobies are watching movies and listen to the music. Right now I don't really working on something, just studied for Collage and sleeep
+
 
 - 🏡 Currently stayed in **Sleman, Special Region of Yogyakarta, Indonesia**
 - 🏃 Sport enthusiat
