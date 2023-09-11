@@ -1,3 +1,5 @@
-### _Hi theree_
+### _HI THEREE_
 Before you know further about me, first thing first let me introduce my self🤗🤗. My name is Marda Rizky Purwadi, you can call me marda. I'm currently studying as a second-year undergraduate student at Gadjah Mada University for geophysic major. My hobies are watching movies and listen to the music. Right mow I don't really working on something, just studied for Collage and sleeep
-Thats all for me Thanks for checking up my profile :v 
+
+
+## Thats all for me Thanks for checking up my profile, see you 👋👋
