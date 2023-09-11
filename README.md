@@ -4,12 +4,12 @@
 
 ### HOLAAA 👋👋
 
-Before you know further about me, first thing first let me introduce my self🤗🤗. My name is Marda Rizky Purwadi, you can call me marda. I'm currently studying as a second-year undergraduate student at Gadjah Mada University for geophysic major. My hobies are watching movies and listen to the music. Right now I don't really working on something, just studied for Collage and sleeep
+Before you know further about me, first thing first let me introduce my self🤗🤗. My name is Marda Rizky Purwadi, you can call me marda. I'm currently studying as a second-year undergraduate student at Gadjah Mada University for geophysic major. My hobies are watching movies and listen to the music. Right now I try to focusing to study programming especially on python code.
 
 
 - 🏡 Currently stayed in **Sleman, Special Region of Yogyakarta, Indonesia**
 - 🏃 Sport enthusiat
-- 🏕️ Like to do adventure
+- 📖 like to learning a new thing
 - 📫 How to reach me **mardarizky1804@mail.ugm.ac.id**
 
 
